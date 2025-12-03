@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **debasishparhi544@gmail.com**
 
-- 📄 Know about my experiences <a href="https://drive.google.com/file/d/1QbKITAXze4NLsfzgBaPs9kZ5RXRUMP4R/view?usp=sharing"> My Resume </a>
+- 📄 Know about my experiences <a href="https://drive.google.com/file/d/1SXYoeDA5M6VFKdnfqGX-yEf-5NdPkgcp/view"> My Resume </a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
